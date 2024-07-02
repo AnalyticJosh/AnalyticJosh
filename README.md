@@ -19,4 +19,4 @@ Salifort Motors Project: The senior leadership team tasked me with analyzing the
 What Drives Me
 I'm driven by the opportunity to leverage data to make informed decisions that positively impact businesses and society. Whether it's optimizing processes, identifying growth opportunities, or addressing societal challenges, I believe in the power of data to drive meaningful change.
 
-If you're interested in collaborating on data-driven projects or discussing analytics strategies, feel free to reach out! You can connect with me on Linkedin, @Joshua Amusan, or my gmail, joshuatolulopeamusan@gmail.com.
+If you're interested in collaborating on data-driven projects or discussing analytics strategies, feel free to reach out! You can connect with me on Linkedin, @Joshua Amusan, or my gmail, joshuaanalyst2@gmail.com
